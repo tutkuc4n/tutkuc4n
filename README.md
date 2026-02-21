@@ -1,4 +1,5 @@
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
+![tumblr_a2f436051592075134f4a20ffe022da4_2935329a_1280](https://github.com/user-attachments/assets/5c640a6b-f316-4d46-9d5d-1b5fc773bc35)
 
   
   ㅤㅤㅤㅤㅤㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
