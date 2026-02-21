@@ -7,7 +7,7 @@
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
 
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ‎<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ
   
 ㅤㅤㅤㅤㅤ
 
