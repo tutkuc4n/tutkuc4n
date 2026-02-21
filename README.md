@@ -1,9 +1,7 @@
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
 ㅤ
 ㅤ
-ㅤ
-ㅤ
-ㅤ![tumblr_8f13d5e87f34e2de7783ade9bc336c89_065194d6_1280](https://github.com/user-attachments/assets/fb7e369c-129f-4eb0-a001-278c87dc881c)
+
 
 
   
