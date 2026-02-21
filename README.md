@@ -39,7 +39,6 @@
 ㅤ
 ㅤ
 
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/17eaec54-4e7c-4242-bc2c-31756d2cbbd2)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
 ㅤ
 ㅤ
