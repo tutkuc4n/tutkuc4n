@@ -34,7 +34,7 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ![star-platinum-heritage-for-the-future](https://github.com/user-attachments/assets/5d9430ef-f2a0-46f4-bf4f-6e018a1ee9f0) ![kakatte-koi](https://github.com/user-attachments/assets/ea4fa331-ca26-40ff-86ce-46d07bff6f15)
+ㅤㅤㅤㅤㅤㅤㅤㅤ![star-platinum-heritage-for-the-future](https://github.com/user-attachments/assets/5d9430ef-f2a0-46f4-bf4f-6e018a1ee9f0) ![kakyoin-jojo-pose](https://github.com/user-attachments/assets/7d88d476-3c61-454b-a1f6-28f23930ca3c)
 
 
 
