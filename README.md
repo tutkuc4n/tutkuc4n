@@ -1,6 +1,7 @@
 و✧
 
-                   <img width="1200" height="558" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/ab3ccc12-f741-4b4e-a237-1b7c35046c3a" />
+                   
+<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/64cd6736-2687-4720-86fa-0806fd057f68" />
 
 
 
