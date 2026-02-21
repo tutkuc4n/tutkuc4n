@@ -9,7 +9,7 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/467/467976cko9hdq4re.gif" width=500 height=25 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
-ㅤㅤㅤㅤㅤ ㅤ‎<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
+ㅤㅤㅤㅤㅤㅤ‎<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
 
 
 
