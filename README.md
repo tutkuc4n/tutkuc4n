@@ -1,7 +1,7 @@
 
-ㅤ![tumblr_8f13d5e87f34e2de7783ade9bc336c89_065194d6_1280](https://github.com/user-attachments/assets/a660c9fe-5e44-4f49-84c5-17d40d885202)
-
-ㅤ                 ㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
+![tumblr_a2f436051592075134f4a20ffe022da4_2935329a_1280](https://github.com/user-attachments/assets/1ec96e7a-ac57-4819-9719-1a55bfa27f87)
+  
+      ㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
   
 ㅤㅤㅤㅤㅤ
 
