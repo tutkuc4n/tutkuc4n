@@ -5,7 +5,6 @@
 
 
   
-![2eb97bb2d39826cbe77aea50f08e7e1e](https://github.com/user-attachments/assets/5d72b302-979f-4831-8d76-2f3146c17681)
   ㅤㅤㅤㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
   
 ㅤㅤㅤㅤㅤ
