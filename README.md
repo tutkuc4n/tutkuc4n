@@ -10,7 +10,7 @@
 
 
   
-  ㅤㅤㅤㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
+  ㅤㅤㅤㅤㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
   
 ㅤㅤㅤㅤㅤ
 
@@ -41,7 +41,7 @@
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/602f2f7f-ced9-4cb8-bc4a-82c70569d63f) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
 
-
-
+ㅤ
+<img width="993" height="83" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6139777572732e706e67" src="https://github.com/user-attachments/assets/abf8dd6a-8609-473a-9e51-122e63d69f57" />
 
 
