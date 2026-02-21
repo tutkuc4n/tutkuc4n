@@ -38,14 +38,15 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
-ㅤ
-ㅤ
-ㅤ
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/17eaec54-4e7c-4242-bc2c-31756d2cbbd2)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
 ㅤ
 ㅤ
-<img width="993" height="83" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6139777572732e706e67" src="https://github.com/user-attachments/assets/6d9f5d93-ff8e-408a-abc9-a83d2c523590" />
+ㅤ
+ㅤ
+ㅤ
+
 
 
 
