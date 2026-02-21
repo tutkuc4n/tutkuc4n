@@ -34,7 +34,7 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/602f2f7f-ced9-4cb8-bc4a-82c70569d63f) ![kakyoin-jojo-pose](https://github.com/user-attachments/assets/7d88d476-3c61-454b-a1f6-28f23930ca3c)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/602f2f7f-ced9-4cb8-bc4a-82c70569d63f) 
 
 
 
