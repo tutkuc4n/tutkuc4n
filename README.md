@@ -33,7 +33,7 @@
 ㅤ꒰ 𝐮𝐬𝐮𝐚𝐥𝐥𝐲 𝐢𝐧 𝐭𝐮𝐫𝐤𝐢𝐬𝐡 𝐚𝐧𝐝 𝐣𝐣𝐛𝐚 𝐚𝐫𝐞𝐚𝐬 !! ꒰ 𝐜𝐚𝐧 𝐛𝐞 𝐦𝐨𝐬𝐭𝐥𝐲 𝐚𝐟𝐤 𝐬𝐨 𝐩𝐥𝐞𝐚𝐬𝐞 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐢𝐟 𝐮 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐢𝐧𝐭 <𝟑 ꒰ 𝐜𝐚𝐧 𝐦𝐚𝐤𝐞 𝐠𝐫𝐚𝐦𝐦𝐚𝐫 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝐦𝐢𝐬𝐭𝐚𝐤𝐞𝐬,
 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐄𝐧𝐠𝐥𝐢𝐬𝐡 𝐢𝐬 𝐧𝐨𝐭 𝐦𝐲 𝐟𝐢𝐫𝐬𝐭 𝐥𝐚𝐧𝐠𝐮𝐚𝐠𝐞  ꒰ 𝐝𝐫𝐚𝐰𝐢𝐧𝐠 𝐝𝐚𝐢𝐥𝐲 𝐛𝐚𝐬𝐢𝐬 (𝐣𝐨𝐭𝐚𝐤𝐚𝐤 𝓎𝒶𝑜𝒾...)
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
-ㅤ
+ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/467/467976cko9hdq4re.gif" width=500 height=25 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
 ㅤ
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/602f2f7f-ced9-4cb8-bc4a-82c70569d63f) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
