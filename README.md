@@ -1,9 +1,9 @@
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/5ed97a47-c920-499b-8565-63b05050ff05" />
 
 ㅤ
-ㅤ                   
-ㅤㅤㅤㅤㅤㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/64cd6736-2687-4720-86fa-0806fd057f68" />
-
+ㅤ                 ㅤ<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
+  
+ㅤㅤㅤㅤㅤ
 
 
 
