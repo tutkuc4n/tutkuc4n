@@ -9,7 +9,7 @@
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤ
   
-ㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤ‎<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
 
 
 
