@@ -59,8 +59,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
-
 ㅤ<img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
 
 ㅤ<img width="993" height="83" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6139777572732e706e67" src="https://github.com/user-attachments/assets/59a8ce32-876c-4910-8bd2-84a574cdfdc9" />
