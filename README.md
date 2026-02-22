@@ -5,8 +5,12 @@
 ㅤ
 <img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
 
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤ
+ㅤㅤ
+<img width="99" height="56" alt="tumblr_6862599c4d7ea79e223e2e844d5722d1_fae3a448_100" src="https://github.com/user-attachments/assets/82f3553b-69ba-47bd-a02f-e579c30a84a4" />ㅤ<img width="99" height="56" alt="tumblr_c4e324c6a9ad045929c1793fc6e68b97_6e7a7b4e_100" src="https://github.com/user-attachments/assets/a3d10307-134c-4e05-a3df-597c0939fe0d" /> ![tumblr_4b120ee99debf254032a284a0a4c6ebe_b4c94bbe_100](https://github.com/user-attachments/assets/b5bdd091-9302-4c17-a649-a2b7c30cb552)![tumblr_8bd35db3886aceec4dee249f04b104e3_0a682f20_250](https://github.com/user-attachments/assets/040caf99-985b-40ed-b78a-308b795a15e5) ![tumblr_6e69dfc25c7e8f159c46de6398a53e5e_7b27867f_100](https://github.com/user-attachments/assets/5f4dd039-0587-4cdf-acbc-1fa2aa73a189)
+
+
+ㅤ
 <a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/467/467976cko9hdq4re.gif" width=500 height=25 border=0></a><br>
 ㅤㅤㅤㅤㅤ‎<img width="736" height="599" alt="Başlıksız20_20260221172542" src="https://github.com/user-attachments/assets/d79ac600-c118-4920-933c-a945109708f1" />
 
