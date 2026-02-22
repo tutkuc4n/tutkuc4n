@@ -46,11 +46,13 @@
 ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![d7ljyjf-fd9b60a5-8e4f-44ca-97c5-d63e5eaac136](https://github.com/user-attachments/assets/17eaec54-4e7c-4242-bc2c-31756d2cbbd2)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![NewkakyoinWithStand](https://github.com/user-attachments/assets/28bda37e-f0a9-4fd2-9af8-cfd53fb16ae2)
-ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="tumblr_7844ab5ed0754c6d6a959bc4b4c798e4_0a4da836_100" src="https://github.com/user-attachments/assets/e6b9e9e1-4233-49d3-9046-2b3971dd2db1" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="tumblr_a729473ac75a0bc42933ac7e391253c3_28220ae5_100" src="https://github.com/user-attachments/assets/6234f28c-b2ca-470e-a98d-921a1541c8fd" />
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="99" height="56" alt="tumblr_7844ab5ed0754c6d6a959bc4b4c798e4_0a4da836_100" src="https://github.com/user-attachments/assets/75615ea0-1e14-46cf-874d-a44b65b39ff1" /> <img width="99" height="56" alt="tumblr_a729473ac75a0bc42933ac7e391253c3_28220ae5_100" src="https://github.com/user-attachments/assets/48fa252f-ccc9-430a-b4d2-e1c2c0ce13d9" />
 
-ㅤ
+
+
 ㅤ<img width="9000" height="354" alt="image" src="https://github.com/user-attachments/assets/c103514b-ebcd-4a10-9f7b-f44e5a8c379b" />
 
 ㅤ<img width="993" height="83" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f6139777572732e706e67" src="https://github.com/user-attachments/assets/59a8ce32-876c-4910-8bd2-84a574cdfdc9" />
